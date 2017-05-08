@@ -1,6 +1,6 @@
 # First Medium Post
 
-Did You Know Netflix is Educational? Yeah, me neither…
+**Did You Know Netflix is Educational? Yeah, me neither…**
 
 Something I’ve come to realize as of late: Perspective is everything.
 
@@ -26,7 +26,7 @@ So now is the time I conclude this blog post with a final request: Get out there
 
 # Second Medium Post
 
-Motivation, Education, and The Adventures of Huckleberry Finn
+**Motivation, Education, and The Adventures of Huckleberry Finn**
 
 In the basic structure of a school system, there are curriculums. Curriculums in which a group of professionals decide what books, specifically the “classics,” should be read and at which grade level. As the growing minds of the youth develop, school systems want to make these works of literature available to susceptible minds. As a fairly recent high school graduate, I feel as though I’m allowed to voice my opinion on the matter. Personally, I felt classic works of literature were forced on me before I was ready to understand and enjoy their literary value. I don’t think I actually finished an entire novel until my junior year of high school when I suddenly found an appreciation for Toni Morrison. I remember reading Beloved with the same mindset of years past, (AKA to just use SparkNotes later) but became shocked by how she was able to keep my interest. I think that a lot of the time teachers push students to read when they aren’t quite capable of grasping the importance of a text. When they aren’t quite motivated to do so on their own.
 
@@ -42,7 +42,7 @@ By utilizing these alternative methods of education such as Netflix, we can enha
 
 # Third Medium Post
 
-Education through Experience
+**Education through Experience**
 
 Planes, trains, and automobiles. No, not the movie. The physical machines that have the ability to transport your body virtually anywhere. They are one of the all-time greatest methods of transportation that exist. Nowadays, we can go anywhere we desire for a relatively low price. Traveling has become something incredibly ordinary for many people. We hop on a plane for two hours and BAM we’re now in an entirely different state that conveniently has a beach. How nice!
 
@@ -63,7 +63,7 @@ https://www.youtube.com/watch?v=qM-gZintWDc
 
 # Fourth Medium Post
 
-Newfound connection through social media
+**Newfound connection through social media**
 
 *Alternative methods of education and what you could do to improve yourself daily…*
 
