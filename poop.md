@@ -1,4 +1,4 @@
-#First Medium Post 
+#First Medium Post
 
 Did You Know Netflix is Educational? Yeah, me neither…
 
@@ -22,3 +22,80 @@ The greatest reward for me after watching these documentaries is what I can do w
 Overall, there’s something for everyone on Netflix. For a relatively inexpensive monthly payment, one has the ability to watch a wide range of TV shows, movies, and documentaries. Everyone has to take a break from their life sooner or later, so why not relax by watching Netflix and learn something new in the process? Why not educate yourself on something you already have an interest in? What’s stopping you from changing your perspective? Anyone with access to Netflix also has the opportunity to broaden their minds and acquire new information that they previously weren’t aware of.
 
 So now is the time I conclude this blog post with a final request: Get out there and explore Netflix!!!
+
+
+#Second Medium Post
+
+Motivation, Education, and The Adventures of Huckleberry Finn
+
+In the basic structure of a school system, there are curriculums. Curriculums in which a group of professionals decide what books, specifically the “classics,” should be read and at which grade level. As the growing minds of the youth develop, school systems want to make these works of literature available to susceptible minds. As a fairly recent high school graduate, I feel as though I’m allowed to voice my opinion on the matter. Personally, I felt classic works of literature were forced on me before I was ready to understand and enjoy their literary value. I don’t think I actually finished an entire novel until my junior year of high school when I suddenly found an appreciation for Toni Morrison. I remember reading Beloved with the same mindset of years past, (AKA to just use SparkNotes later) but became shocked by how she was able to keep my interest. I think that a lot of the time teachers push students to read when they aren’t quite capable of grasping the importance of a text. When they aren’t quite motivated to do so on their own.
+
+Don’t get me wrong — I love the classics. I’m an English major and I don’t think I would be where I am today without having had those pieces of literature forced down my throat as a kid. BUT what I can tell you is that I only have recently found an appreciation in those same works because I’ve revisited them in college. I’m older now and have the mental capacity to actually understand what the heck is going on in The Adventures of Huckleberry Finn. Mark Twain was a tricky bastard and high school Grace just didn’t pick up on any of it.
+
+Now, there may be some personal motivational problems that I can see arising. But alas, let’s just keep pushing those down and stay focused here. If you couldn’t tell by now, I wasn’t a straight A student. Never have been. There’s something that’s always remained unimportant to me about excelling in school. That doesn’t necessarily mean I’m not smart, but it means that I’ve never really tried to regurgitate my knowledge like the other kids. I hated the suck ups and kids who couldn’t seem to lower their hand in a class discussion. But I’ve learned to love the literature.
+
+I think what’s so different for me is that in college, we actually have interesting discussions about the literature we read. We don’t just answer ten numbered questions on a piece of paper. We go into detail about the specifics of someone’s life, what events led up to someone making this huge decision, and the importance of that small town in Mississippi that no one talks about. That’s what high school English classes are lacking — discussions. I’m sure the teachers go over the material, but the attention span in those classrooms must waver from time to time. In college, all of the students are there by choice. There is no uncertainty about why we’re all discussing this work of literature. We’re allowed to write papers on themes that we specifically found interesting. If we want, we can even continue the discussion with our professors after class and, imagine this, they don’t get upset!
+
+Perhaps one of the most important aspects of education is the setting in which it takes place. By being surrounded by like-minded students, perhaps our chances of optimal engagement with a topic or work of literature increase substantially. Motivation is something that drives most of us in completing our everyday tasks. Without that, we wouldn’t really have purpose. Without a purpose, how are we expected to continue our education?
+
+By utilizing these alternative methods of education such as Netflix, we can enhance the opportunity for education. The classics taught to high school students can one day serve as something foundational for aspiring writers or poets. We have the ability to read literature on our own without a curriculum telling us to do so. Being inspired or motivated to learn is something precious. We need to keep this in mind and continue our education in the years to come.
+
+#Third Medium Post
+
+Education through Experience
+
+Planes, trains, and automobiles. No, not the movie. The physical machines that have the ability to transport your body virtually anywhere. They are one of the all-time greatest methods of transportation that exist. Nowadays, we can go anywhere we desire for a relatively low price. Traveling has become something incredibly ordinary for many people. We hop on a plane for two hours and BAM we’re now in an entirely different state that conveniently has a beach. How nice!
+
+With all of these places we have the opportunity to go, we also have the opportunity to gain new experiences and therefore new perspectives. We’re constantly learning and understanding through our surroundings. New places often have the tendency to freak some people out, but how can one learn by spending copious amounts of time in their home?
+
+An interesting perk of traveling is the experience of a different culture. Say you’re traveling to Brazil for the first time and you have no idea what to expect from the mysterious continent of South America. You’re aware of some geography (well…vaguely) and you’ve planned out most of your time spent there using a convenient app designed to help ease your various navigational troubles. Without having spent much time traveling in the past, you’re shocked at how utterly different the culture is when you get there. Life moves at a whole different pace. After successfully finding your hotel after hours wasted in the airport in search of luggage, you collapse on your bed and just listen to the hustle and bustle below on the street. Yes, traveling is exhausting. But, would you have experienced all of these strange characters in your boring hometown in Wisconsin? No, I don’t think so.
+
+Education is so much more than just sitting behind a desk and regurgitating information back on an exam. Experiencing the various people and other ways of life that are completely different from yours are crucial in understanding more about the world. Before sophomore year of high school, I had never been out of the country. This really hadn’t started to bother me until I was called an uncultured swine by a boy in my orchestra class named Will Johnson. Yes, I cared what Will Johnson and his stupid double bass thought of me. I remember having this incredibly challenging conversation with my mom about wanting to travel the world and discover new parts of myself along the way. (Yes, I know what you’re thinking: what profound thoughts coming from a measly sophomore!)
+
+Well, the opportunity came for me to go to Malaysia for two weeks with some family friends. Upon departure, I thought I would feel some kind of sadness about leaving my family for two weeks. Nope. I didn’t longingly look back for some reason not to go. The twenty hour plane ride made me want to change my mind. Going with a family who makes this trip every other year, I felt like I couldn’t really complain about the boredom that consumed me on that plane. But hey, now I can bond with anyone who’s forced to be on planes for days. (Look at me, all cultured and whatnot).
+
+SO anyway, Malaysia was incredible. The pace of life is so different. And I don’t mean different from your hometown or anything, but different from any life in America. It just isn’t America. Yes, everyone drives on the opposite side of the road and there’s a surprising lack of any rules. People always seem to be in a hurry and when I went in late June, there was a layer of smog that stayed overhead. Shopping was different. THE FOOD WAS DIFFERENT. Let me tell you — wherever you go, the food alone is an experience. Everything was different. And everything was delicious.
+I didn’t understand a single word in Malay before I arrived. After I left, I had all the basics down. Alas, it’s all left me by now. But it counts. It does.
+
+I had this amazing experience of traveling to a country I knew nothing about and coming out of it more educated. I learned how to interact with people of different cultures. I learned how to avoid accidents while driving on the left side of the road. I even learned how to dis Will Johnson and his stupid double bass. Now if that last one isn’t enough evidence behind my argument, then I don’t even know the point of this blog anymore.
+By traveling and experiencing, so many opportunities for growth open up along the way. Without these chances for education through travel, one can’t … I sound a whole lot like Robin Williams in Good Will Hunting from that scene between him and Will on a bench. I guess I’ll just finish the post with a link…
+https://www.youtube.com/watch?v=qM-gZintWDc
+
+#Fourth Medium Post
+
+Newfound connection through social media
+
+*Alternative methods of education and what you could do to improve yourself daily…*
+
+So I’ve recently broken my iPhone. I’m in that group of people who keep what I call a “safety phone” in my underwear drawer because of how often my phone breaks. I’ve cracked it, I’ve jumped into a river with it in my pocket, and I’ve dealt with all the software problems imaginable.
+
+It’s Monday morning and I wake up and instantly reach for my phone that’s charging within reaching distance of my bed. Opening my old android, I realize that there’s nothing for me to look at on that screen for once in my life. Instagram isn’t supported on the archaic device and I can’t even remember the password for my email since my old phone automatically remembered for me. As I’m lying in my bed looking out the window, I actually hear the birds chirping. I’m thinking to myself: “Wow…when was the last time I actually stopped and listened to the birds in the morning? As a matter of fact…when was the last time I even looked out of my window in the morning?”
+
+Call it a wake-up call or what have you, but I then realized that I’m addicted to technology. Now…that’s not such a bad thing when you think about it. Staying connected is very important these days. In order to maintain your status as an informed citizen, reading the news every so often and brushing up on politics is integral to daily life. Many working people follow this routine for their jobs or just for peace of mind. BUT I believe a balance between the two can be reached. Realizing you have a problem is the first step in fixing it….or whatever they say.
+
+Let’s talk about staying informed. It seems to be so easy these days. Social media is revolutionary in that aspect. In my morning routine, I gather so many tidbits of information from Facebook or Instagram or Twitter to sustain me for the events that will occur throughout the day. I can be prepared for social interactions when someone mentions a political something-or-other and I could potentially voice my opinion on the matter. By reading the news in the morning, I can stay up to date with what’s going on around me. Through social media, another layer of connection appears.
+
+**Twitter**
+Twitter has evolved into a multipurpose network of communication that is one of today’s most common social media platforms. From middle schoolers posting their favorite memes of their teacher to Donald Trump’s use of his twitter account to share news with his fellow citizens of the United States, Twitter has a wide range of uses that are all summed up with a few hashtags.
+
+The use of the hashtag was first introduced by Chris Messina in a single tweet that read: “How do you feel about using # (pound) for groups. As in #barcamp …?” This single tweet changed the way Twitter operates. Thanks to the integration of the hashtag, so many similar ideas have a simple method of organization. Simple enough, right? This small little adjustment to how twitter works is another glimpse into the possibility of motivational learning.
+These hashtags can help us move quickly on social media. By grouping together various threads of like-minded conversation, our lives suddenly become a lot easier. Hashtags can group together various news articles, recent events, popular debates, presidential elections, and the list goes on. By having so many threads of conversations available to us, our opportunities for education are endless.
+
+AND not only does Twitter give us updates on the world, it gives them to us in under 140 characters. How’s that for quick learning? We now have the capability of not only learning something that peaks our personal interests, but we can do it in a matter of minutes to accompany our on-the-go lifestyles.
+
+**Instagram**
+In quite the same way, Instagram is a similar social media platform that gains the same kind of attention for different reasons. In a much more personal way, Instagram allows for another conversation of communication to occur. Instead of being “friends” with someone on Facebook, Instagram implemented the use of a following system.
+
+Instagram consists of photos that can be stored on a specific profile and posted on a dashboard that will show up on the dashboards of people who follow that specific user. Through the use of photos with the capability of captions, Instagram serves as a platform for people to stay connected. Whether this connection lies between two friends who are in separate countries or friends posting a picture of their Saturday night together, another level of connection is so readily available to anyone with a smart phone. Although Twitter and Facebook are used more for political news, Instagram seems to be based more around friendships and relationships.
+
+Personally, I follow some Instagram accounts that feature their latest products to sell. For instance, there’s a sock company, Voodoo Socks, that mainly uses Instagram to advertise their latest pair of socks. It’s an easy way for me to see a picture of their product and all I have to do if I’m interested is click on the link to their website in the caption. Must be good for business.
+
+**Facebook**
+Interestingly enough, Facebook seems to be a combination of all of these previous platforms. In addition to the capability of sharing photos with your “friends,” there seems to be another level of the outreach of news to billions of users. In the top right corner of the dashboard screen, there are chosen topics of conversation that one can easily click on to gain various perspectives on the story.
+
+From Kim and Kanye having their second child to firsthand witnesses of the disaster in Paris, Facebook has found a way to educate their users by keeping them informed, and it’s entirely up to the user where their knowledge will go. There are downsides to having these various social media accounts, but for the most part, as long as one can control who they are friends with or who they follow, it is easy to stay informed as well as stay sane.
+SO long story short…social media is a great tool (when used correctly) to stay informed on current events as well as what’s going on with your buddies. We now have the benefit of technology so why not use it to enhance our education in addition to connecting with others? By utilizing the ease of access to news on Facebook or excelling your business by using Twitter to keep your customers informed, there is a wide range of benefits to the age of communication we have found ourselves in today.
+
+It’s also important to not become consumed in technology. Actually look outside of your window in the morning and listen to the birds chirping before you check your phone consume yourself in the political and capitalistic world we live in.
+
+On that note — you’re now free to check Facebook. Happy learning!
