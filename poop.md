@@ -1,19 +1,24 @@
-# This is not fun
+#First Medium Post 
 
-I would like to be **outside**
+Did You Know Netflix is Educational? Yeah, me neither…
 
-In the nice *sunlight*
+Something I’ve come to realize as of late: Perspective is everything.
 
-Perhaps sitting on the **drillfield** eating some *chips*
+Now, as I somehow devise a clever plan in order to swiftly transition that little sentence into my planned topic of education today… I’m not going to do that. Why? Call it lack of energy or even laziness, but I’m too freaking busy. That seems to be a common problem in our society today: lack of time. What are we doing all day that occupies our time? Work, school…yeah, that’s all I can think of. These are the two most important things taking up my time at the moment. My whole life revolves around education. I’m lucky enough to be attending a university which opens up opportunities for me to learn something everyday. I can connect with so many different students that are knowledgeable on a variety of topics. Perspective is everything. So many different kinds of people have varying views on just about anything you can think of — politics, music, food, coffee — and yet we don’t hate each other! Oh wait…
 
-You know how Woody says:
-> There's a snake in my boot
+Education is one of those big broad topics that we don’t always agree on. From what I can tell from my insignificant interaction in the realm of politics, there’s an ongoing debate occurring pertaining to the topic of public schools in America. Whenever anyone is running for president, education is crucial to their campaign. But what about those who don’t have access to higher education? Of those people who can’t afford universities or don’t have the time because they’re already working to support their families?
 
-Here is a list of things I would *rather* be doing
-1. sleeping
-2. driving
-3. existing outside
-4. sleeping
-5. eating some chips
-6. watching *Toy Story*
-7. sleeping 
+What if there was another way for these people to still get educated on topics of importance, but didn’t have to spend as much money doing so? Netflix could potentially be that alternative source of education if used correctly.
+
+Yet, I find myself coming home after a long day and typing the letter “n” into the search bar on Chrome just to be taken away into this abyss of nothingness. I hit the return key, and the beautiful red letters appear on the screen. It’s Netflix time. Hours pass by and suddenly I realize I need to get some rest before starting the next day of my life filled with plans and…responsibilities. Gross.
+
+So why do I feel guilty after spending copious amounts of time watching TV? What if there was a way to relax and put off all of my responsibilities and still further my education in the process?
+Yes, the same medium that we can use to binge watch all of our favorite TV shows can also teach us something of value. What some people don’t seem to realize about these types of platforms is that they are not solely used for entertainment purposes. Did you know there’s a category for documentaries on Netflix?
+
+When one dabbles with documentaries on Netflix, something great happens. Like me, there is the possibility of becoming addicted to these unusual films. Every night for an entire week, I would come home and watch a different documentary. It all started with the Grateful Dead. I’ve never been a dead-head (and I’m still not), but there was something about watching a documentary on Bob Weir that really got me into documentaries. Maybe it was just him being a cool guy, but the amount of knowledge I obtained from watching that hour or so of film was astonishing to me. This seems to be the case with most documentaries — I found something that peaked my interest (in this case: music) and went from there. For me, music was what got me into the realm of Netflix documentaries. The week following Bob Weir was filled up with other musical prodigies. Yes, some of these films are hit or miss but that’s a risk I’m willing to take.
+
+The greatest reward for me after watching these documentaries is what I can do with the knowledge afterwards. Especially for music I get more into certain artists that I had previously overlooked. For instance, while watching the Bob Weir documentary, there was mention of Janis Joplin throughout. I had never really heard much about her except what my mom had infrequently mentioned. After the end credits of Bob Weir, Janis Joplin’s documentary was suggested for me. So, I thought — what the heck, let’s do it. That’s another perk about Netflix — they suggest films based on your interests. Not only do you have access to all of these videos that you never thought you would be interested in, Netflix has the ability to guess what you want to watch next.
+
+Overall, there’s something for everyone on Netflix. For a relatively inexpensive monthly payment, one has the ability to watch a wide range of TV shows, movies, and documentaries. Everyone has to take a break from their life sooner or later, so why not relax by watching Netflix and learn something new in the process? Why not educate yourself on something you already have an interest in? What’s stopping you from changing your perspective? Anyone with access to Netflix also has the opportunity to broaden their minds and acquire new information that they previously weren’t aware of.
+
+So now is the time I conclude this blog post with a final request: Get out there and explore Netflix!!!
