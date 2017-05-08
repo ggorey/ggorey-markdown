@@ -1,4 +1,4 @@
-#First Medium Post#
+# First Medium Post
 
 Did You Know Netflix is Educational? Yeah, me neither…
 
@@ -24,7 +24,7 @@ Overall, there’s something for everyone on Netflix. For a relatively inexpensi
 So now is the time I conclude this blog post with a final request: Get out there and explore Netflix!!!
 
 
-#Second Medium Post#
+# Second Medium Post
 
 Motivation, Education, and The Adventures of Huckleberry Finn
 
@@ -40,7 +40,7 @@ Perhaps one of the most important aspects of education is the setting in which i
 
 By utilizing these alternative methods of education such as Netflix, we can enhance the opportunity for education. The classics taught to high school students can one day serve as something foundational for aspiring writers or poets. We have the ability to read literature on our own without a curriculum telling us to do so. Being inspired or motivated to learn is something precious. We need to keep this in mind and continue our education in the years to come.
 
-#Third Medium Post#
+# Third Medium Post
 
 Education through Experience
 
@@ -61,7 +61,7 @@ I had this amazing experience of traveling to a country I knew nothing about and
 By traveling and experiencing, so many opportunities for growth open up along the way. Without these chances for education through travel, one can’t … I sound a whole lot like Robin Williams in Good Will Hunting from that scene between him and Will on a bench. I guess I’ll just finish the post with a link…
 https://www.youtube.com/watch?v=qM-gZintWDc
 
-#Fourth Medium Post#
+# Fourth Medium Post
 
 Newfound connection through social media
 
